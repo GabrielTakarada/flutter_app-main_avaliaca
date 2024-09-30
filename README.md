@@ -1,3 +1,3 @@
-#Gabriel Silva Takarada
+Gabriel Silva Takarada
 
-#Leonardo Henrique
+Leonardo Henrique
